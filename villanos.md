@@ -1,5 +1,5 @@
 #**NOTA**
 
-###joker
-
-###reverse flash
+*Dr doom
+*Red skull
+*Electro 
